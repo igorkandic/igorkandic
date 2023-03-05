@@ -1,4 +1,5 @@
-### Hi there 👋
+
+Two pharoah-esque yellow lines turned into an eye. What did that eye see? It saw Turbets, Golden Sehar. And on, what was in that Sehar? Now you'll hear. There were pharaoh cards. Pharaoh piercings, pyramids earrings, Sharks and Draculas. Yusuf found himself piercing, prayed Audhubille. Yellow pyramid threw such a stamp that Pharaoh yellow eye got stamped on his forehead. On that day he Mustafad, twice.
 
 <!--
 **igorkandic/igorkandic** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
